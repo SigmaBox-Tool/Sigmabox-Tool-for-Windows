@@ -40,8 +40,6 @@
 ![SigmaBox Interface](https://sigmakey.com/nfs/product/891008/file/how-to-activate.jpg)  
 *User-friendly dashboard for phone operations*
 
-
-
 ---
 
 ## 🔍 SEO Keywords
